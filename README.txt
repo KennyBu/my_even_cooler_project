@@ -1,1 +1,1 @@
-This project is seriously aweosme, you guys.
+This project is totally awesome, you guys.
